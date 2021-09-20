@@ -1,0 +1,5 @@
+- 👋 H!, my name is liam
+- 🔮 I'm owner of my own server [NoLink]
+- 🧪 Application Developer+++
+- 📋 Create Discord Development Tools [Bots] 
+- 🔍 It's my page
